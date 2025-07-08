@@ -19,4 +19,4 @@
 最后，虽然一些资源是免费的，但我们仍然要尊重版权。支持正版资源不仅能够保证自己的观看体验，还能鼓励创作者继续提供优质内容。通过合法途径观看内容，可以避免侵权风险，也有助于推动整个行业的健康发展。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mua246/35799 ）</span>
